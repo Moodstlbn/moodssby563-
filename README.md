@@ -2,7 +2,7 @@
 - 👀 I’m interested in Being ur friend
 - 🌱 I’m currently learning 😜
 - 💞️ I’m looking to collaborate on making the leaf a better home
-- 📫 How to reach me 0838682283
+- 📫 How to reach me +27838682283
 
 <!---
 Moodstlbn/Moodstlbn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
